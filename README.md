@@ -15,3 +15,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+atualmente estudando 
+gosto de jogar
+sou extrovertido e engraçado
